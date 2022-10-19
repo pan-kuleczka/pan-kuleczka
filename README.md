@@ -1,4 +1,4 @@
-### Hi there 👋
+### I will finish setting up my profile someday...
 
 <!--
 **pan-kuleczka/pan-kuleczka** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
